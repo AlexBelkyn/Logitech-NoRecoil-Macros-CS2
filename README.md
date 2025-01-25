@@ -31,3 +31,5 @@ https://t.me/belkynjio
 
 You can also donate at the link where all payments are available: then send me a screenshot of the payment I will check and send you a file with the code, do not worry everything is in my interest
 https://donatello.to/belkynjio
+
+https://t.me/belkynjio

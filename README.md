@@ -12,3 +12,7 @@ MAC 10
 LITE- 25$. FULL-50$
 all the instruction and also the video proof I am fixing.
 after payment, I will give you full access to the files, you can also contact me for various questions.
+you can purchase this macro using the platform GUMROAD, links to LITE and FULL versions I attach, you can also contact me using the same platform or write to me in Telegram.
+https://belkynstudio.gumroad.com/l/shtdvt
+https://belkynstudio.gumroad.com/l/kqbvt
+https://t.me/belkynjio
